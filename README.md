@@ -1,3 +1,3 @@
 # Sentence-level-Chinese-English-Audio-Fusion-Based-on-Deep-Learning
-项目链接：https://pan.baidu.com/s/1ecGqVaorB1UoeI-P0-22bw 
-提取码：j0u1
+项目链接: https://pan.baidu.com/s/1D_OXod0A4fLmhw6sVxAQUQ 
+提取码请联系管理员邮箱获取：18806075636@163.com
